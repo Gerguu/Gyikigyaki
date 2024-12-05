@@ -1,0 +1,2 @@
+# Gyikigyaki
+mottotanit
